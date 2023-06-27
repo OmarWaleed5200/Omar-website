@@ -1,5 +1,5 @@
 ### Hi 👋 I'm Omar Waleed
-**A person who's likes to play Minecraft and other stuffs
+**A person who's likes to play Minecraft and other stuffs**
 
 Here are some ideas to get you started:
 
